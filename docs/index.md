@@ -1,4 +1,4 @@
-## Introduction
+## About Me
 
 I'm a father, husband, analyst, system administrator, minimalist, technical writer, musician and lifter of weights.
 
